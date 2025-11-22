@@ -15,7 +15,7 @@ Craftsmanship is a journey. Mine has started long ago in multiple ways:
 - As a kid, from a Mediterranean immigrant family, I have learnt thanks to my grandmother the importance of good food, home style cooking. In Japan, missing my dear French camembert, I have started to learn how I could make it myself. Back to Europe, I missed the subtle tastes of authentic Japanese fermented food. I have learnt how to make them too.
 
 
-This blog is just a travel notebook through all these topics. As a very late diagnosed ADHDer, this is also therapeutic helping me to set personal objectives. The name **Modern shokunin** (modern craftsman) embodies both traditional and modern craftsmanhip. 
+This blog is just a travel notebook through all these topics as I continue my journeys. I really feel that at 42, I have only scratched the surface. As a very late diagnosed ADHDer, this is also therapeutic helping me to set personal objectives. The name **Modern shokunin** (modern craftsman) embodies both traditional and modern craftsmanhip. 
 
 What can you expect to find here ?
 
