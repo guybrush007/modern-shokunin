@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "Craftsmanship is a journey"
-date:   2025-11-22 10:00:00 +0200
+date:   2026-09-06 18:00:00 +0200
 categories: 
   - me
 ---
